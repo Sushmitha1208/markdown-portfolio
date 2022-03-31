@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+you can check out more on [google.com/images](https://google.com/images) say hello on twitter [@sushmitha](https://twitter.com/sushmitha)
